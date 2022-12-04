@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mai Minh Hoang
+- 👋 Hi, I’m Mai Minh Hoang, but you can call me Kyu
 - 👀 Thank you for visiting
 - 📫 Know that you are always welcome here
 
